@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @divyanshu58
+- 👀 I’m interested in Business Analysis
+- 🌱 I’m currently learning SQL,Tableau,Power BI
+- 📫 How to reach me www.linkedin.com/in/divyanshusachdeva1
+- 😄 Pronouns: Procurement Associate@accenture
